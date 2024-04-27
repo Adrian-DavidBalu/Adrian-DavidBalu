@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Adrian-DavidBalu (the username is self explanatory) 
+- 👀 I’m interested in Programming, Football and Reading
+- 🌱 I’m currently learning at UNSTPB in Bucharest
+- 💞️ I’m looking to collaborate on anything is assigned to me
+- 📫 How to reach me: mail me at adrian_david.balu@stud.fiir.upb.ro
+- 😄 Pronouns: not something I'm interested in.
+- ⚡ Fun fact: I don't know. You tell me...
